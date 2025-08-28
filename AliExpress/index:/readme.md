@@ -1,0 +1,8 @@
+- [1M/2M/3M/5M/10M DC 5V USB LED Light Strip Hand Sweep Waving ON OFF Sensor Diode Tape Backlight TV Kitchen Under Cabinet Lamp](https://www.aliexpress.us/item/3256806735840693.html)
+- [1-10pcs Normally Closed Type Vibration Sensor Module Alarm Sensor Module Vibration Switch SW-420 for Arduino](https://www.aliexpress.us/item/3256807942869551.html)
+- [For Arduino ! Normally Closed Type Vibration Sensor Module - Alarm Sensor SW - 420](https://www.aliexpress.us/item/3256809401409643.html)
+- [Infrared Proximity Switch DIY Kit Automatic Faucet Hand Dryer IR Sensor Module](https://www.aliexpress.us/item/3256808039889238.html)
+- [Infrared Sensing Proximity Switch Photoelectric Sensor Automatic Hand Dryer Faucet Sensing Module](https://www.aliexpress.us/item/3256809299024325.html)
+- [Infrared Sensing Proximity Switch Photoelectric Sensor Automatic Hand Dryer Faucet Sensing Module](https://www.aliexpress.us/item/3256807123480779.html)
+- [LP-5020 3-12V 12VIR Infrared Sensing Module Led Lamp With Aluminum Shell Built-in Infrared Sensing Switch And Hand Scan Switch](https://www.aliexpress.us/item/3256809592173007.html)
+- [Infrared Sensing Proximity Switch Photoelectric Sensor Automatic Hand Dryer Faucet Sensing Module](https://www.aliexpress.us/item/3256809019517570.html)
